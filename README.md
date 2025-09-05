@@ -1,4 +1,7 @@
-## Hi there 👋
+# dadirug.es/whois/487164
+
+<img width="1079" height="1183" alt="Screenshot_20250905-170216" src="https://github.com/user-attachments/assets/542044d2-0ee0-4e7f-9371-4dce52fe2101" />
+
 
 <!--
 **dadiruges-487164/dadiruges-487164** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
