@@ -1,4 +1,4 @@
-# dadirug.es/whois/487164
+# whois
 
 <img width="1079" height="1183" alt="Screenshot_20250905-170216" src="https://github.com/user-attachments/assets/542044d2-0ee0-4e7f-9371-4dce52fe2101" />
 
